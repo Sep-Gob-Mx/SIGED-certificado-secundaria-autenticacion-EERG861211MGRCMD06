@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-EERG861211MGRCMD06
+EERG861211MGRCMD06
